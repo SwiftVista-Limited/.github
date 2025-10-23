@@ -81,10 +81,10 @@ We operate at the intersection of **finance**, **technology**, and **business**,
 
 ## 🌍 Contact Us
 
-📧 **Email:** info@swiftvista.com  
-🌐 **Website:** [www.swiftvista.com](https://www.swiftvista.com)  
+📧 **Email:** info@swiftvistaapp.com  
+🌐 **Website:** [www.swiftvistaapp.com](https://www.swiftvistaapp.com)  
 📍 **Head Office:** Lagos, Nigeria  
-📞 **Phone:** +234-XXX-XXX-XXXX  
+📞 **Phone:** +234-903-614-6498
 
 ---
 
